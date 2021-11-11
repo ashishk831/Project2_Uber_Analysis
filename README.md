@@ -32,4 +32,3 @@ Steps Involved:
 
 Conclusion:
 Providing incentive to driver can help in easy movement of the cab within and outside the city to meet-up the demand of large distance travel.
-Conclusion:
